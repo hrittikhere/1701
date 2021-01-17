@@ -2,4 +2,6 @@
 https://cutt.ly/3jUPgUY
 
 [Ufuk Celik](https://github.com/cloneumc)
+Ujjwal Madaan
 Hrittik Roy
+
